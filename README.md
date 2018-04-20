@@ -31,7 +31,7 @@
 - The ultimate quantification of success is not how much you spend doing what you love. It's how little time you spend doing what you hate.
 
 # Steve Jobs
-- > Coming back to America was, for me, much more of a cultural shock than going to India. The people in the Indian countryside don’t use their intellect like we do, they use their intuition instead, and their intuition is far more developed than in the rest of the world. **Intuition is a very powerful thing, more powerful than intellect, in my opinion.**
+> Coming back to America was, for me, much more of a cultural shock than going to India. The people in the Indian countryside don’t use their intellect like we do, they use their intuition instead, and their intuition is far more developed than in the rest of the world. **Intuition is a very powerful thing, more powerful than intellect, in my opinion.**
 
 > Western rational thought is not an innate human characteristic; it is learned and is the great achievement of Western civilization. In the villages of India, they never learned it. They learned something else, which is in some ways just as valuable but in other ways is not. That’s the power of intuition and experiential wisdom.
 
