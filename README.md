@@ -27,5 +27,8 @@
 - **State --> Story --> Strategy** (prime your state first. The biochemistry will help you tell an enabling story, from which you can create powerful strategies)
 - **Asymmetrical risks and rewards:** All successful people look for the least amount of risk to get the max amount of upside. They don't believe they have to take huge risks for huge rewards.
 
+# Casey Neistat
+- The ultimate quantification of success is not how much you spend doing what you love. It's how little time you spend doing what you hate.
+
 
 
