@@ -5,5 +5,7 @@
 
 > Coming back after seven months in Indian villages, I saw the craziness of the Western world as well as its capacity for rational thought. If you just sit and observe, you will see how restless your mind is. If you try to calm it, it only makes it worse, but over time it does calm, and when it does, there’s room to hear more subtle things—that’s when your intuition starts to blossom and you start to see things more clearly and be in the present more. Your mind just slows down, and you see a tremendous expanse in the moment. You see so much more than you could see before. It’s a discipline; you have to practice it.
 
-> Zen has been a deep influence in my life ever since...I learned the truth of the Zen saying that if you are willing to travel around the world to meet a teacher, one will appear next door.
+> Zen has been a deep influence in my life ever since...I learned the truth of the Zen saying that if you are willing to travel around the world to meet a teacher, one will appear next door. ( *p.48 of biography* )
+
+- "He had the attitude that he could do anything, and therefore so can you. He put his life in my hands. So that made me do something I didn't think I could do." It was the brighter side of what would become known as his reality distortion field. "If you trust him, you can do things," Holmes said. "If he's decided that something should happen, then he's just going to make it happen." (  *p.52*  )
 
