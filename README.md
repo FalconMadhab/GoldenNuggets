@@ -38,4 +38,15 @@
 - **Never go to sleep without a request to your subconscious** (Thomas Edison)
 - Reid gives his subconscious a problem to work on in his sleep. "I actually think most of our thinking, of course, is subconscious. Part of what I'm trying to do is allow the fact that we have this kind of relaxation, rejuvenation period in sleeping, to essentially bubble eup the thoughts and solutions to it." <br><br> Ideally, Reid budgets 60 minutes for the following: "The very first thing I do when I get up, almost always, is to sit down and work on that problem [I've set the day before] because that's when I'm freshest. I'm not distracted by phone calls and responses to things, and so forth. It's the most tabula rasa - blank slate - moment that I have. I use that to maximize my creativity on a particular project.
 
+# Peter Thiel
+- If I could go back 20 or 25 years, **I wish I would have known that there was no need to wait**...So if you're planning to do something with your life, if you have a 10-year plan of how to get there, you should ask: **Why can't I do this in 6 months?** Sometimes, you have to actually go through the complex 10-year trajectory. But it's at least worth asking **whether that's the story you're telling yourself, or whether that's the reality.**
+- **Failure is always simply a tragedy**
+- I think trends are often things to avoid. What I prefer over trend is a sense of mission. That you are working on a unique problem that people are not solving elsewhere. 
+- Ask questions:
+  - Is this true?
+  - Why am I doing this?
+  - Tell me something that's true that very few people agree with you on
+  - What problem do you face everyday that nobody has solved yet?
+  - What is a great company no one has started?
+
 
